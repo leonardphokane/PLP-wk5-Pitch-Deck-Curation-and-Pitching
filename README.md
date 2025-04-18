@@ -17,4 +17,6 @@
 ## Our Ask (funding needs or requests)
 ## The Team
 
-https://gamma.app/docs/Lebone-Ltd-Drug-Detox-Recovery-Center-5cyrtvbgt11m8rm
+## 🔗 Live Demo
+
+🌐 [View Pitch Deck Live] https://gamma.app/docs/Lebone-Ltd-Drug-Detox-Recovery-Center-5cyrtvbgt11m8rm
